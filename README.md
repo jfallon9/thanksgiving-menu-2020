@@ -17,8 +17,9 @@ For the upcoming Thanksgiving feast I have put together the following document d
 * Cranberry sauce traditional MBD
 * Pickled Beets
 * Clover leaf buns
+* [Brussel Sprouts](https://www.slenderkitchen.com/recipe/crispy-balsamic-brussel-sprouts)
+* [Mac and Cheese](https://www.saveur.com/article/Recipes/Artisanal-Macaroni-and-Cheese)
 * [Creamy Mashed Potatoes](https://www.bonappetit.com/recipe/ultra-creamy-mashed-potatoes)
-* [Carrots](https://cookieandkate.com/2018/perfect-roasted-carrots-recipe/)
 * Green Beans. Pan sauteed with some garlic
 * Sweet Potatoes roasted in some form recipie TBD
 
