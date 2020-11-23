@@ -8,7 +8,7 @@ For the upcoming Thanksgiving feast I have put together the following document d
 
 ## Entrees
 
-* Whole Heritage Turkey from Norwind Farms
+* Whole Heritage Turkey from Norwind Farms. [NYTimes Cooking](https://cooking.nytimes.com/recipes/1015474-simple-roast-turkey)
 
 ## Sides
 
