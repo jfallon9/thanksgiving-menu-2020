@@ -21,7 +21,7 @@ For the upcoming Thanksgiving feast I have put together the following document d
 * [Mac and Cheese](https://www.saveur.com/article/Recipes/Artisanal-Macaroni-and-Cheese)
 * [Creamy Mashed Potatoes](https://www.bonappetit.com/recipe/ultra-creamy-mashed-potatoes)
 * Green Beans. Pan sauteed with some garlic
-* Sweet Potatoes roasted in some form recipie TBD
+* [Za'atar Sweet Potatoes](https://www.epicurious.com/recipes/food/views/zaatar-sweet-potatoes-and-garlicky-kale)
 
 ## Desert
 
