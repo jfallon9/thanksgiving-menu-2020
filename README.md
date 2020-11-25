@@ -10,6 +10,7 @@ For the upcoming Thanksgiving feast I have put together the following document d
 ## Entrees
 
 * Whole Heritage Turkey from Norwind Farms. [NYTimes Cooking](https://cooking.nytimes.com/recipes/1015474-simple-roast-turkey)
+* [Gravy](https://www.thekitchn.com/how-to-make-quick-turkey-gravy-thanksgiving-cooking-lessons-from-the-kitchn-161016)
 
 ## Sides
 
