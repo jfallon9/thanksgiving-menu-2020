@@ -28,4 +28,3 @@ For the upcoming Thanksgiving feast I have put together the following document d
 
 * Pumpkin pie
 * Apple pie
-* [Mini Chocolate nut pies](https://www.cookinglight.com/recipes/mini-chocolate-nut-pies)
